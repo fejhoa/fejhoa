@@ -1,5 +1,4 @@
 ##frweraerew
 ililgdgdgdfggkhu
-xggffdsffrfaedsad
-пчапавпява
+xggffdа
 ertgdrggrger
